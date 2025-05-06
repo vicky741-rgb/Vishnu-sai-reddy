@@ -5,4 +5,4 @@
 - Passionate about learning new things, building projects, and improving my skills.
 - When I'm not coding, I enjoy experimenting with new ideas or working on personal projects.
    
-- Reach me on [LinkedIn](www.linkedin.com/in/vishnu-sai-reddy-mooli-8425b0354)  
+- Reach me on [LinkedIn](https://www.linkedin.com/in/vishnu-sai-reddy-mooli-8425b0354/)  
